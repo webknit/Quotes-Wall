@@ -13,3 +13,8 @@ A list of sensational quotes from undisclosed sources.
 **Upon arrival at the pub**
 
 "where's all the young lasses?"
+
+
+**When meaning precedent**
+
+“ha, yeah, im also trying to set a presedence for others”
