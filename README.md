@@ -5,8 +5,8 @@ A list of sensational quotes from undisclosed sources.
 
 **When reading an article and noticing the word EMEA.**
 
-Person 1: EMEA :O, Stein has worked with them.
-Person 2: EMEA stands for europe, middle east and africa
+Person 1: EMEA :O, Stein has worked with them.   
+Person 2: EMEA stands for europe, middle east and africa   
 Person 1: like i give a ...
 
 
