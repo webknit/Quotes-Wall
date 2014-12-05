@@ -8,7 +8,7 @@ A list of sensational quotes from undisclosed sources.
 Person 1: If you could be any animal what would it be?
 Person 2: A dolphin
 Person 1: Why's that then?
-Person 2; Becuase they're intelligent and have sex for fun.
+Person 2: Because they're intelligent and have sex for fun.
 
 
 **When reading an article and noticing the word EMEA.**
