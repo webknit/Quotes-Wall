@@ -5,9 +5,9 @@ A list of sensational quotes from undisclosed sources.
 
 **We've got a wild one...**
 
-Person 1: If you could be any animal what would it be?
-Person 2: A dolphin
-Person 1: Why’s that then?
+Person 1: If you could be any animal what would it be?  
+Person 2: A dolphin  
+Person 1: Why’s that then?  
 Person 2: Because they’re intelligent and have sex for fun!
 
 
