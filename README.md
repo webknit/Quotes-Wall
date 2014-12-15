@@ -3,9 +3,9 @@ Quotes-Wall
 
 A list of sensational quotes from undisclosed sources.
 
-**When learning the word bird in sign language**
-Person 1: "How do you do the bird?"
-Person 2: "The bird should come over your chest"
+**When learning the word bird in sign language** 
+Person 1: "How do you do the bird?" 
+Person 2: "The bird should come over your chest" 
 
 **We've got a wild one...**
 
