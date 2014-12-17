@@ -3,6 +3,11 @@ Quotes-Wall
 
 A list of sensational quotes from undisclosed sources.
 
+**Two colleagues speaking about being busy with running club tomorrow lunch **  
+Person 1: Are you ready for tomorrow?  
+Person 2: My body's always ready  
+
+
 **When learning the word bird in sign language**  
 Person 1: "How do you do the bird?"  
 Person 2: "The bird should come over your chest" 
