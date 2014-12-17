@@ -3,7 +3,7 @@ Quotes-Wall
 
 A list of sensational quotes from undisclosed sources.
 
-**Two colleagues speaking about being busy with running club tomorrow lunch **  
+**Two colleagues speaking about being busy with running club tomorrow lunch**  
 Person 1: Are you ready for tomorrow?  
 Person 2: My body's always ready  
 
