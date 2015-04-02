@@ -4,6 +4,7 @@ Quotes-Wall
 A list of sensational quotes from undisclosed sources.
 
 **Eating out at lunch**
+
 Email sent round about having lunch out
 Person 1 replies that he has bought lunch and won't be attending
 Dinner time approaches and we stand up to go for dinner
