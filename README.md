@@ -5,11 +5,11 @@ A list of sensational quotes from undisclosed sources.
 
 **Eating out at lunch**
 
-Email sent round about having lunch out
-Person 1 replies that he has bought lunch and won't be attending
-Dinner time approaches and we stand up to go for dinner
-Person 1 states he will come and have a salad
-Halfway through the meal..
+Email sent round about having lunch out 
+Person 1 replies that he has bought lunch and won't be attending 
+Dinner time approaches and we stand up to go for dinner 
+Person 1 states he will come and have a salad 
+Halfway through the meal.. 
 Person 1 asks - whilst eating a 'big plate dinner' - if anyone else is having dessert!
 
 **Two colleagues speaking about being busy with running club tomorrow lunch**  
